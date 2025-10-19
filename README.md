@@ -3,3 +3,7 @@ https://www.yuque.com/ggb0nd/zazw9y/fgsz4ggoiqebylg4
 https://www.yuque.com/ggb0nd/zazw9y/tw13csul317aze1z
 https://www.yuque.com/ggb0nd/zazw9y/avuwxccwbsmaokwa
 https://www.yuque.com/ggb0nd/zazw9y/nyqrckahhkmrb2pe
+//以上是第一周任务
+https://www.yuque.com/ggb0nd/zazw9y/mbfi5meksfly8wu6?singleDoc
+https://www.yuque.com/ggb0nd/zazw9y/tn7wngy825w3xoug?singleDoc
+https://www.yuque.com/ggb0nd/zazw9y/gogyv0r4spvn61q3?singleDoc
